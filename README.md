@@ -1,0 +1,1 @@
+-hello! its me egehankralby! sorry for this is long but i made a owo bot script pls enjoy!
